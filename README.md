@@ -1,2 +1,2 @@
 # hello-world
-my first github deal :P
+man i'm just sad a lot, not much to hear about me.
